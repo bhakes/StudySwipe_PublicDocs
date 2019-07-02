@@ -1,0 +1,1 @@
+# StudySwipe Help Guide
